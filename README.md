@@ -4,4 +4,5 @@ If so, you should probably add me on discord, as I dont really do much stuff her
 Ping me in the server you found me, as I do not friend unknown people.
 ![](https://komarev.com/ghpvc/?username=MaxwellTheGoober)
 
+click to get to my discord
 <a href="https://discord.com/users/744538964622573618"><img src="https://lanyard.cnrad.dev/api/744538964622573618" /></a>
