@@ -7,9 +7,5 @@ If I dont respond, Assume that I'm asleep, Reach out if you want.
 Some platforms i'm on are Discord, Bluesky, Matrix, Roblox, Steam, and Flashpoint.
 Go to my discord to find some of them, Add me on some if you want, however you may be declined if you don't properly introduce yourself first.
 ![](https://komarev.com/ghpvc/?username=MaxwellTheGoober)  
-
-<a href="https://discord.com/users/744538964622573618"><img src="https://discord.c99.nl/widget/theme-4/744538964622573618.png" /></a> << link to my discord account
-
-
+![discord](https://discord.c99.nl/widget/theme-4/744538964622573618.png )  
 [![Goober's GitHub stats](https://github-readme-stats.vercel.app/api?username=MaxwellTheGoober)](https://github.com/anuraghazra/github-readme-stats)
-github stats
